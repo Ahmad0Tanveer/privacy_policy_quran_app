@@ -1,0 +1,1 @@
+# privacy_policy_quran_app
